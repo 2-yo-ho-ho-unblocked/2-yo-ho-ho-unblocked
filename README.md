@@ -1,4 +1,4 @@
-# Yohoho.io Unblocked 2
+# Yohoho.io 2 Unblocked
 https://lesson1.guru/
 
 https://cookieclicker.blog/
