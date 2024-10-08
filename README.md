@@ -3,7 +3,7 @@ https://lesson1.guru/
 
 https://cookieclicker.blog/
 
-https://retrobowl.blog/
+https://symbaloo.club/
 
 https://classroom247.pages.dev/
 
